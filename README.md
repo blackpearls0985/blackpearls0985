@@ -1,5 +1,5 @@
-💫 Hi 👋, I'm Bhupender Singh
- Full Stack Developer|| Freelancer
+💫 Hi 👋, I'm **Bhupender Singh**
+ Full Stack Developer || Freelancer
 
 Email Me 👉 ✉️ bhupenders239@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
